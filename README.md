@@ -11,7 +11,9 @@
 
 - 📫 How to reach me **avijangid7011@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1e-9FCx45VrZJhTSuvKHNxVRqrnNm0o2I/view?usp=sharing](https://drive.google.com/file/d/1e-9FCx45VrZJhTSuvKHNxVRqrnNm0o2I/view?usp=sharing)
+- 📄 Know about me [https://avinesh-portfolios.netlify.app/](https://avinesh-portfolios.netlify.app/)
+
+- 🧾 Resume [https://drive.google.com/file/d/1e-9FCx45VrZJhTSuvKHNxVRqrnNm0o2I/view?usp=sharing](https://drive.google.com/file/d/1e-9FCx45VrZJhTSuvKHNxVRqrnNm0o2I/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
